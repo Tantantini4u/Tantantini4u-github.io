@@ -5,8 +5,7 @@ Owned by **Hero**
 
 **The dog named BULLET**
 
-Bullet was born on December 23, 2021. He is the 3rd puppy of Nala (his mother). He is very naughty and cute. Bullet brings joy to our family every day.
-Every time when Bullet is inside the house, he keeps playing hide and seek with me. When he is outside of the house, he keeps running and running aroung the house.
+Bullet was born on December 23, 2021. He is the 3rd puppy of Nala (his mother). He is very naughty and cute. Bullet brings joy to our family every day. Every time when Bullet is inside the house, he keeps playing hide and seek with me. When he is outside of the house, he keeps running and running aroung the house.
 
 Bullet is still a puppy, so I have to train him to use the restroom or go outside when he needs to poop. He would startle me awake by barking at the foot of my bed, so I had to get up and let him out. I make sure Bullet goes for walks. Once we get home after exercise, I make sure Bullet drinks plenty of water. Bullet enjoys eating a lot. He loves liver, dog treats, and dog food. Having Bullet makes me feel needed and appreciated.
 
